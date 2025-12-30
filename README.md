@@ -6,8 +6,8 @@ I love my Oomfs/Friends sm yall dont know 🥹 I LOVE YALL!! yall are always fre
 # °❀.ೃ࿔* Interests / Things i like! (๑ᵔ⤙ᵔ๑)
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ Mlbb [mobile legends bang bang] Forsaken, Dandys world, Deadly delivery, Drawing ^^ !! , Arg's :3 , ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ Roleplaying  (˶ˆᗜˆ˵) ⪩. .⪨ Cats foxs and Animals in general ₍ᐢ. .ᐢ₎ 
 
-<img width="235" height="203" alt="image" src="https://github.com/user-attachments/assets/24b84e9d-8136-4152-91bc-c7fe76f72dac" /> <img width="236" height="197" alt="image" src="https://github.com/user-attachments/assets/e9e869e3-914a-42a2-81d5-79fc900876a3" />
-   <img width="238" height="177" alt="image" src="https://github.com/user-attachments/assets/5d82d4e9-a4f1-49d4-932b-13344cf1571d" />
+<img width="235" height="203" alt="image" src="https://github.com/user-attachments/assets/24b84e9d-8136-4152-91bc-c7fe76f72dac" />  <img width="236" height="197" alt="image" src="https://github.com/user-attachments/assets/e9e869e3-914a-42a2-81d5-79fc900876a3" />
+   <img width="238" height="177" alt="image" src="https://github.com/user-attachments/assets/5d82d4e9-a4f1-49d4-932b-13344cf1571d" /> 
 ──★ ˙🍓 ̟ !! "MY NAME IS BRUTUS AND MY NAME MEANS HEAVY ! SO WITH A HEAVY HEART ILL GUIDE THIS DAGGER THROUGH THE HEART OF MY ENEMY ! MY WHOLE LIFE YOU WERE A FRIEND AND TEACHER TO ME , PLEASE KNOW MY ACTIONS ARE NOT ONLY MOTIVATED BY ENVY ! I TOO HAVE A DESTINY  THIS DEATH WILL BE ART! " /LYR !!  ──★ ˙🍓 ̟ !!
 
 # .ೀ Extra info ♡⸝⸝
