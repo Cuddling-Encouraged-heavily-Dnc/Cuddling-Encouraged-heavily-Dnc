@@ -14,3 +14,10 @@ Fruitcake , ⋆ ˚｡⋆୨୧˚ OrnamentCookie , JohnJane [John doe x jane doe]
 
 # DNI / things i dislike Sorry if u like them / important info.!! ૮₍˃̵֊ ˂̵ ₎ა
 Double fedora , Any ships w/ 1x , 77noli / Burgerpizza / "Ewww Forsaken/dandys world!!" / Strawberrycookie / Toxicity and or just rude people its not that hard to be nice sheesh people ... / Aubree [facelulz] X jx1dx1 sorry but that is just weird imo / HEAVY no to 1xdoe and or AdminVirvus . / Dry texters [SO SORRYY AAAAA :(( ] . Homophobic people + Racism. / Skin copiers ᡕᠵデᡁ᠊╾━  If i have DNIUCF in my name just basically dont talk to me :--; .. 𐔌՞. .՞𐦯 Unless your  Gabe, Mellow, Trigger. ok? ok.⪩. .⪨ Please dont say anything about my pony's , Art , Selfship with 1x1 [NEGATIVELY] those are sensitive Topics and may make me upset easily.˙ . ꒷ 🍙 . 𖦹˙— 🐈⬛  Please Understand that i can be sensitive or felt ignored easily and if i go silent or start being dry it might be me being upset im so sorry if you feel Upset by this aswell  i cant control it ,✩°｡🧸𓏲⋆.🧺𖦹 ₊˚  I have Adhd and Anger issues PLEASE UNDERSTAND ME.  and tell me if i make you uncomfy or if any of my friends do i wont be afraid to say something about it.. just be nice about it alright? .. ୧ ‧₊˚ 🍵 ⋅ alright.
+
+# I love my Green hubby /Platonic mostly 
+<img width="307" height="273" alt="image" src="https://github.com/user-attachments/assets/f7aab29e-bbe7-4f64-bfda-767d8993558f" />      <img width="245" height="314" alt="image" src="https://github.com/user-attachments/assets/7aed9a11-ad56-4184-8e1b-43260a4d1aa7" />    <img width="336" height="364" alt="image" src="https://github.com/user-attachments/assets/99656314-7be6-47c7-8165-b86fed95cf32" />      <img width="233" height="270" alt="image" src="https://github.com/user-attachments/assets/6149d1e0-00d1-4400-ae0b-e9ca59b7be1a" />
+
+
+
+
