@@ -1,6 +1,6 @@
 # ‧˚꒰🐾୭ ˚. ᵎᵎ Introduction ! ⋆˚࿔
 𓊆ྀི❤︎𓊇ྀི Hai hello Im Ayumi Im fine with Cinna / 1x aswell but i do prefer being called Ayumi I go by She/They It/its is acceptable I dont go by He/him unless related to the character i cosplay˖ Im fine with 'freakiness' and i wont judge you as long as your not doing something outright Horrible ! ᡣ𐭩 ⊹ ࣪ ౨ৎ˚₊ Bisexual / [Questioning Aromantic] + Demi girl ❤︎ 
-I love my Oomfs/Friends sm yall dont know 🥹 I LOVE YALL!! yall are always free to Int with me <33 ⋆.ೃ࿔*:･ ... Especially you guys 👀 .. [Looks over at Gabe,trigger,Zed giggles hi pooks :3]
+I love my Oomfs/Friends sm yall dont know 🥹 I LOVE YALL!! yall are always free to Int And Cuddle with me <33 ⋆.ೃ࿔*:･ ... Especially you guys 👀 .. [Looks over at Gabe,trigger,Zed giggles hi pooks :3]
 # °❀.ೃ࿔* Interests / Things i like! (๑ᵔ⤙ᵔ๑)
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ Mlbb [mobile legends bang bang] Forsaken, Dandys world, Deadly delivery, Drawing ^^ !! , Arg's :3 , ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ Roleplaying  (˶ˆᗜˆ˵) ⪩. .⪨ Cats foxs and Animals in general ₍ᐢ. .ᐢ₎ 
 
