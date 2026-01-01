@@ -3,7 +3,8 @@
 
 ❗❗ WARNING : none of these drawings are mine.❗❗ 
 ִֶ
-  I love my Oomfs/Friends sm yall dont know 🥹 I LOVE YALL!! yall are always free to Int And Cuddle with me <33 ⋆.ೃ࿔*:･ ... Especially you guys 👀 .. [Looks over at Gabe,trigger,Zed giggles hi pooks :3]   ૮꒰ ˶• ༝ •˶꒱ა ♡ Not the best with neo prouns or know much about System's and stuff along those lines but ill try my very best to respect you guys and make you feel comfortable !! so sorry if i Misgender // Use the wrong prouns im just stupid ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂      
+  I love my Oomfs/Friends sm yall dont know 🥹 I LOVE YALL!! yall are always free to Int And Cuddle with me <33 ⋆.ೃ࿔*:･ ... Especially you guys 👀 .. [Looks over at Gabe,trigger,Zed giggles hi pooks :3]   ૮꒰ ˶• ༝ •˶꒱ა ♡ Not the best with neo prouns or know much about System's and stuff along those lines but ill try my very best to respect you guys and make you feel comfortable !! so sorry if i Misgender // Use the wrong prouns im just stupid ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂  
+  If i make you uncomfy or feel bad IMSORRYIMSORRYIMSOSORYRRSOSORYROMGOGSORRYOIMGOSSOUSRSRSRILYSOSRR
 [Extra : Follow me if u uh ig wanna be friends also i might follow you back if you do so dont be confused on why im randomly following u ok? ok.. unless i forget LMAO bad memory core]
 
 # ME AND MY FRIENDSS <333 ꉂ(˵˃ ᗜ ˂˵) 
