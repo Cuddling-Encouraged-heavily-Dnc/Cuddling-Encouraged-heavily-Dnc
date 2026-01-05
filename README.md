@@ -14,6 +14,7 @@
 # ༄˖°.🍂.ೃ࿔*:･ Please keep in mind that sometimes i might joke around alot Saying things like "Dni" "I hate you" "Sybau" "SHUT UP" and other stuff please know this is just me messing around and this is basically my love language Please dont take it to heart im so sorry if you do please tell me if you dont like me saying this to you ill keep in mind  for the sake of your comfort alright? 
 Aswell as i dont mind if you say anything bad about me in JOKES as long as its not about my insecurities  + too far.. and If you are being rude to my oomfs i WILL get mad at you . Have some damn respect thanks ? ────୨ৎ────
 
+
 # "I like you so come over rn!!! <3" /lyr
 # °❀.ೃ࿔* Interests / Things i like! (๑ᵔ⤙ᵔ๑)
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ Mlbb [mobile legends bang bang] Forsaken, Dandys world, Deadly delivery, Drawing ^^ !! , Arg's :3 , ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ Roleplaying  (˶ˆᗜˆ˵) ⪩. .⪨ Cats foxs and Animals in general ₍ᐢ. .ᐢ₎ MUSIC ADDICT <33 🎧ྀི♪⋆.✮ Cosplaying in Ponytown + Catalog avater .  ▶︎ •၊၊||၊|။||||| 0:10 You <3 /Platonic ! .
