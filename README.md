@@ -13,8 +13,7 @@
 
 # ༄˖°.🍂.ೃ࿔*:･ Please keep in mind that sometimes i might joke around alot Saying things like "Dni" "I hate you" "Sybau" "SHUT UP" and other stuff please know this is just me messing around and this is basically my love language Please dont take it to heart im so sorry if you do please tell me if you dont like me saying this to you ill keep in mind  for the sake of your comfort alright? 
 Aswell as i dont mind if you say anything bad about me in JOKES as long as its not about my insecurities  + too far.. and If you are being rude to my oomfs i WILL get mad at you . Have some damn respect thanks ? ────୨ৎ────
-<img width="738" height="463" alt="image" src="https://github.com/user-attachments/assets/07058e12-1297-4a66-8131-fc5f42e55b50" />
-[hacklord drawing bey me 4 Zed my frien ok?]
+
 
 # "I like you so come over rn!!! <3" /lyr
 # °❀.ೃ࿔* Interests / Things i like! (๑ᵔ⤙ᵔ๑)
