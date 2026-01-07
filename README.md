@@ -49,3 +49,4 @@ Please for the both of our safety's do keep in mind that im a minor and if your 
 Rip my heart into pieces , I deserve it  - If theres a way to let myself suffer to make them happy id do it . Vent to me but dont hear what i have to say Its fine . I love you even if you dont . 
 
 
+<img width="682" height="469" alt="image" src="https://github.com/user-attachments/assets/9833f217-7fa6-42d1-b45c-e792cf9f4e1b" />
