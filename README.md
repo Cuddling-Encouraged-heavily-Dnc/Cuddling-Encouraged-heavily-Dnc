@@ -47,6 +47,7 @@ Please for the both of our safety's do keep in mind that im a minor and if your 
 <img width="307" height="273" alt="image" src="https://github.com/user-attachments/assets/f7aab29e-bbe7-4f64-bfda-767d8993558f" />      <img width="245" height="314" alt="image" src="https://github.com/user-attachments/assets/7aed9a11-ad56-4184-8e1b-43260a4d1aa7" />    <img width="336" height="364" alt="image" src="https://github.com/user-attachments/assets/99656314-7be6-47c7-8165-b86fed95cf32" />      <img width="233" height="270" alt="image" src="https://github.com/user-attachments/assets/6149d1e0-00d1-4400-ae0b-e9ca59b7be1a" />
 
 Rip my heart into pieces , I deserve it  - If theres a way to let myself suffer to make them happy id do it . Vent to me but dont hear what i have to say Its fine . I love you even if you dont . 
+<img width="651" height="460" alt="image" src="https://github.com/user-attachments/assets/804a5d7d-6963-42f2-bd21-35cf28fb6746" />
 
 
 
