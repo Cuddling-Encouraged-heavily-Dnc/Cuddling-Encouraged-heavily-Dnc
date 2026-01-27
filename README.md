@@ -8,7 +8,9 @@
 
 # ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 # Basic information about me.
-Im a heavy believer in people should be able to do what you want get the hell out and dont talk to me if your going to be Homophobic or transphobic or any of those - and FYI im bisexual [Questioning Aromantic and pansexual] So if that bothers you . take a stick and shove it up your ahh. Im a 1x1x1x1 Kin and sometimes i might come off as rude or less energetic perhaps even dull or bland its most likely because im not in the mood or feeling irritated / Upset i apologize  for that but i promise i dont mean it.
+Im a heavy believer in people should be able to do what you want get the hell out and dont talk to me if your going to be Homophobic or transphobic or any of those - and FYI im bisexual [Questioning Aromantic and pansexual] So if that bothers you . take a stick and shove it up your ahh. Im a 1x1x1x1 Kin and sometimes i might come off as rude or less energetic perhaps even dull or bland its most likely because im not in the mood or feeling irritated / Upset i apologize  for that but i promise i dont mean it. 
+
+Oh and fyi im a minor im under 16y but im over 13y Iwc 18+ year olds.
 
 🎧ྀི "They'll **kill** a girl for dancing dont talk to me again! BLEGH!"౨ৎ⋆˚｡⋆
 
@@ -36,11 +38,37 @@ Let him go
 Blair
 Ihasafacelulz
 Skatinggrease
+Limbus company
 ---𓍢ִ໋🌷͙֒
 Args 
 Minecraft horror mods 
 Analog horror / Horror in general 
 Making cosplays in games 
+⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱
+<img width="687" height="417" alt="image" src="https://github.com/user-attachments/assets/4ef796ab-56cd-4186-9425-d372c71a45c6" />
+
+# Favorite characters . 
+ - Absolute on top are of course 1x1x1x1 and telamon ehe along with shedletsky ₍^⸝⸝> ·̫ <⸝⸝ ^₎ Hacklord Including 2x2 - Azure, Two time, Jane doe, Amarah - aswell as C00lkid - Noli . Dyrroth, Argus, Helcurt, Broken spawn, pursuer [4saken ver sorry DoD fans.]. Yi xi.
+Do not have many characters im uncomf with or rather hate really. 
+# Ship information -
+**First of all the ships i like / love** -Nosferatu x Spectre 𓍢ִ໋🌷͙֒Noob666 <3 💤 Johnjane,💤 Brightsky i prefer brightTelamon but there both the same anyways basically,💤 Azuretime, 💤Burgericecream [007n7 x 008o8],💤 Carmilla x cecilion💫, Alpha x Angela. 💫 Hacklord n brighteyes -💫 Hacklord x telamon 💫 Uzi x N -. And Pr3ttybluudud  .˚ ༘ ೀ⋆｡˚ 
+**Now for ones I dislike / hate -** [Bow = Unless friend] [Clip = unless Close friend / Best friend] [Explosion = Do not int at all / Possible block since i block FREELY.]
+Doublefedora [Iwec] [🔗]
+
+77noli Iwc [🎀]
+
+Pizzaburger [Iwec] [🎀]
+
+Paycheck [Iwc] [Just dont ship it]
+
+Admin virus [💥] / [Iwvec]
+
+1xDoe [💥] / [Iwvec] 
+
+Any 1x1 Ship in general - [💥] / [Iwvec]
+
+c00lkid x 007n7 [4saken] [💥] [DNI] 
+
+─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ──
 
 
-ﮩ
