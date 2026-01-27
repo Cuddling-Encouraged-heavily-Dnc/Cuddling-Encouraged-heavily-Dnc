@@ -8,7 +8,11 @@
 
 # ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 # Basic information about me.
-Im a heavy believer in people should be able to do what you want get the hell out and dont talk to me if your going to be Homophobic or transphobic or any of those - and FYI im bisexual [Questioning Aromantic and pansexual] So if that bothers you . take a stick and shove it up your ahh. Im a 1x1x1x1 Kin and sometimes i might come off as rude or less energetic perhaps even dull or bland its most likely because im not in the mood or feeling irritated / Upset i apologize  for that but i promise i dont mean it. 
+Im a heavy believer in people should be able to do what you want get the hell out and dont talk to me if your going to be Homophobic or transphobic or any of those - and FYI im bisexual [Questioning Aromantic and pansexual] So if that bothers you . take a stick and shove it up your ahh. Im a 1x1x1x1 Kin and sometimes i might come off as rude or less energetic perhaps even dull or bland its most likely because im not in the mood or feeling irritated / Upset i apologize  for that but i promise i dont mean it.  - 
+
+ Oh and if your a yumeshipper [NOT a dupe of my yumeship] int freely actually i even Enc you 2 do so! Its comforting to have other yumeshippers around ill respect ur yumeship aslong as u respect mine . ! I respect Touch triggers and crowd discomfort so sorry if i accidently passs your boundaries Im a bit too used to being overly touchy? if that makes sense ingame. Just tell me NICELY. to stop . keyword:NICELY. 
+
+ Dont know much about 'sys' or 'systems' or anything but i try 2 respect  everyone. 
 
 Oh and fyi im a minor im under 16y but im over 13y Iwc 18+ year olds.
 
