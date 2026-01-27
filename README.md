@@ -27,9 +27,11 @@ im basically ALWAYS at bakery rarely at docks . Only time im somewhere else is w
 Please do not cover me its a bit annoying unless your cuddling then idm. 
 I dont have crowd discomfort nessacerily but if we are talking and im in a bit of a crowd and being covered i will find it a bit uncomfort at times since i hate being covered
 
+
 ⊹ ࣪ ˖💢 ꫂ ၴႅၴ ₊ ⊹"Throw me to the wolves, Punish me for your sins BURDEN me with your guilt so it will eat me instead."✩°｡⋆⸜ 🎧✮
 # Other info 
 Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC . I accept other 1x1x1x1 kins im just uncomfortable w / other yumeshippers 
+Other 1x1 yumeshippers MAY c+h w me if im 1x1 or any character but maybe just iwvec or dont mention the yumeshipping part, then idm!. 
 My fandoms are and or Interests in general
 Forsaken 
 Dandys world 
@@ -72,6 +74,10 @@ Admin virus [💥] / [Iwvec]
 Any 1x1 Ship in general - [💥] / [Iwvec]
 
 c00lkid x 007n7 [4saken] [💥] [DNI] 
+
+
+
+
 
 ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── 
 
