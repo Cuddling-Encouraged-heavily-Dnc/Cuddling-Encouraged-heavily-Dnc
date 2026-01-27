@@ -27,6 +27,11 @@ Im usually with friends but dont be afraid to come up if you need something or c
 im basically ALWAYS at bakery rarely at docks . Only time im somewhere else is when im with a friend. 
 Please do not cover me its a bit annoying unless your cuddling then idm. 
 I dont have crowd discomfort nessacerily but if we are talking and im in a bit of a crowd and being covered i will find it a bit uncomfort at times since i hate being covered
+if you wanna cud as certain characters idm jst ask me to swap characters lmao ! 
+I can move from a spot most of the time if you just ask nicely.
+I block FREELY sorry if you were blocked
+You may Int freely most of the time unless i have 'NV' in my name . i will not respond to you or perhaps just want to be left alone at that moment thank you. If you want just whisper me and ill respond later on.
+
 
 
 ⊹ ࣪ ˖💢 ꫂ ၴႅၴ ₊ ⊹"Throw me to the wolves, Punish me for your sins BURDEN me with your guilt so it will eat me instead."✩°｡⋆⸜ 🎧✮
