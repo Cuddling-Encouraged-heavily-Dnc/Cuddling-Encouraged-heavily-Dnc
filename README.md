@@ -113,4 +113,12 @@ c00lkid x 007n7 [4saken] [💥] [DNI]
 My oomfs who i love sm - 
 Zed, Azure/zap, Trigger, gabe, mellow, Chii chii, Vaux, Vitix, Soy, Cube, Jx1dx1, Blueberry/Azure, Cat, Stormy, n More im 2 lazy 2 name rn but i still love yall <33
 
+Zed - 1# Hacklord n Erlking fan 
+
+Trigger - Best multifandom Gal.
+
+Jx1dx1 - The REAL jx1dx1 
+
+Vitix -  = #1 פרחים fan!!!!
+
 
