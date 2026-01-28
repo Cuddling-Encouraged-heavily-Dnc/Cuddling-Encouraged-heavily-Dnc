@@ -23,14 +23,22 @@ Oh and fyi im a minor im under 16y but im over 13y Iwc 18+ year olds.
 ───────────────────────────────────────────────────────────────────────────────────────
 # Ponytown Info. 
 Im a heavy lover of cuddles please please do come and cuddle with me i love it sm heavy touch comf! [Even if c+h isnt in my name] . 
+
 You may take SLIGHT. SMALL. inspo of my ponys id prefer you dont but still but Do not copy my ponies i repeat DO NOT copy my ponies whatsoever I spend time on making them and you can too.
 Im usually with friends but dont be afraid to come up if you need something or cuddle. 
+
 im basically ALWAYS at bakery rarely at docks . Only time im somewhere else is when im with a friend. 
+
 Please do not cover me its a bit annoying unless your cuddling then idm. 
+
 I dont have crowd discomfort nessacerily but if we are talking and im in a bit of a crowd and being covered i will find it a bit uncomfort at times since i hate being covered
+
 if you wanna cud as certain characters idm jst ask me to swap characters lmao ! 
+
 I can move from a spot most of the time if you just ask nicely.
+
 I block FREELY sorry if you were blocked
+
 You may Int freely most of the time unless i have 'NV' in my name . i will not respond to you or perhaps just want to be left alone at that moment thank you. If you want just whisper me and ill respond later on.
 
 
@@ -38,19 +46,33 @@ You may Int freely most of the time unless i have 'NV' in my name . i will not r
 ⊹ ࣪ ˖💢 ꫂ ၴႅၴ ₊ ⊹"Throw me to the wolves, Punish me for your sins BURDEN me with your guilt so it will eat me instead."✩°｡⋆⸜ 🎧✮
 # Other info 
 Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC . I accept other 1x1x1x1 kins im just uncomfortable w / other yumeshippers 
+
 Other 1x1 yumeshippers MAY c+h w me if im 1x1 or any character but maybe just iwvec or dont mention the yumeshipping part, then idm!. 
+
 My fandoms are and or Interests in general
+
 Forsaken 
+
 Dandys world 
+
 Mlbb / mobile legends bang bang 
+
 Murder drones 
+
 The amazing digital circus 
+
 Minecraft 
+
 Roblox 
+
 Let him go 
+
 Blair
+
 Ihasafacelulz
+
 Skatinggrease
+
 Limbus company
 ---𓍢ִ໋🌷͙֒
 Args 
