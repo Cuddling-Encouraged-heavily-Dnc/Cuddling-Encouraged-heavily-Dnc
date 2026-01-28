@@ -111,14 +111,28 @@ c00lkid x 007n7 [4saken] [💥] [DNI]
 ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── 
 
 My oomfs who i love sm - 
-Zed, Azure/zap, Trigger, gabe, mellow, Chii chii, Vaux, Vitix, Soy, Cube, Jx1dx1, Blueberry/Azure, Cat, Stormy, n More im 2 lazy 2 name rn but i still love yall <33
 
 Zed - 1# Hacklord n Erlking fan 
 
-Trigger - Best multifandom Gal.
+Trigger - Best multifandom Gal n Best lab <3
 
 Jx1dx1 - The REAL jx1dx1 
 
 Vitix -  = #1 פרחים fan!!!!
+
+Gabe - Wooly's OFFICAL husband + Cosmo lover [Wooly would never like bro /Heavy j I love you hon/P]
+
+Mellow - Cats are LIFE!1!
+
+Azure/Zap - Youtube Addict 
+
+Chii chii - "Goo goo ga ga 👶 "  |Why did they give me this?..Love ya anyways ok /platonic|
+
+Blueberry/Azure - Azure's offical Wife yeah . + #1 azure fan
+
+Finn/Will - Buildershed Fan heh
+
+Teto - Cuddler + Love there husband <3 
+
 
 
