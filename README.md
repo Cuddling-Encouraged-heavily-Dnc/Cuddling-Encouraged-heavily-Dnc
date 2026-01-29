@@ -83,7 +83,7 @@ Making cosplays in games
 <img width="687" height="417" alt="image" src="https://github.com/user-attachments/assets/4ef796ab-56cd-4186-9425-d372c71a45c6" />
 
 # Favorite characters . 
- - Absolute on top are of course 1x1x1x1 and telamon ehe along with shedletsky ₍^⸝⸝> ·̫ <⸝⸝ ^₎ Hacklord Including 2x2 - Azure, Two time, Jane doe, Amarah - aswell as C00lkid - Noli . Dyrroth, Argus, Helcurt, Broken spawn, pursuer [4saken ver sorry DoD fans.]. Yi xi.
+ - Absolute on top are of course 1x1x1x1 and telamon ehe along with shedletsky ₍^⸝⸝> ·̫ <⸝⸝ ^₎ Hacklord Including 2x2 - Azure, Two time, Jane doe, Amarah - aswell as C00lkid - Noli . Dyrroth, Argus, Helcurt, Broken spawn, pursuer [4saken ver sorry DoD fans.]. Yi xi. AUBREE !! +Jxdx1 ! , Datagen
 Do not have many characters im uncomf with or rather hate really. 
 # Ship information -
 **First of all the ships i like / love** -Nosferatu x Spectre 𓍢ִ໋🌷͙֒Noob666 <3 💤 Johnjane,💤 Brightsky i prefer brightTelamon but there both the same anyways basically,💤 Azuretime, 💤Burgericecream [007n7 x 008o8],💤 Carmilla x cecilion💫, Alpha x Angela. 💫 Hacklord n brighteyes -💫 Hacklord x telamon 💫 Uzi x N -. And Pr3ttybluudud  .˚ ༘ ೀ⋆｡˚ 
@@ -104,9 +104,9 @@ Any 1x1 Ship in general - [💥] / [Iwvec]
 
 c00lkid x 007n7 [4saken] [💥] [DNI] 
 
+Any Child x Adult / Child x Parent Ship [💥]
 
-
-
+Jx1dx1 x Aubree [🔗/💥/🎀] [Dni/IWVEC I Have mixed feelings sorry for adding all three]
 
 ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── 
 
@@ -116,11 +116,11 @@ Zed - 1# Hacklord n Erlking fan
 
 Roka/Trigger - "Im Ticket Takers wifie" + *I can't decide whether you should live or* **DIE** ! 
 
-Jx1dx1 - The REAL jx1dx1 
+Jx1dx1 - The REAL jx1dx1 🟥
 
-Vitix -  = #1 פרחים fan!!!!
+Vitix -  = #1 פרחים fan!!!! 
 
-Gabe - Wooly's OFFICAL husband + Cosmo lover [Wooly would never like bro /Heavy j I love you hon/P]
+Gabe - Wooly's OFFICAL husband🐑 + Cosmo lover🍰[Wooly would never like bro /Heavy j I love you hon/P]
 
 Mellow - Cats are LIFE!1!
 
@@ -132,7 +132,11 @@ Blueberry/Azure - Azure's offical Wife yeah . + #1 azure fan
 
 Finn/Will - Buildershed Fan heh
 
-Teto - Cuddler + Love there husband <3 
+Teto - Cuddler + Love there husband <3 ❤️
 
+Vaux - #1 jamie glazer 💚 !! 
 
+Stormy - Masochistic crayon eater 🖍️🔥
+
+Cat - Shellvision CEO !! 💚💛 
 
