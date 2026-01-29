@@ -114,7 +114,7 @@ My oomfs who i love sm -
 
 Zed - 1# Hacklord n Erlking fan 
 
-Trigger - "Im Ticket Takers wifie" + *I can't decide whether you should live or* **DIE** ! 
+Roka/Trigger - "Im Ticket Takers wifie" + *I can't decide whether you should live or* **DIE** ! 
 
 Jx1dx1 - The REAL jx1dx1 
 
