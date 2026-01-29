@@ -45,6 +45,16 @@ You may Int freely most of the time unless i have 'NV' in my name . i will not r
 
 ⊹ ࣪ ˖💢 ꫂ ၴႅၴ ₊ ⊹"Throw me to the wolves, Punish me for your sins BURDEN me with your guilt so it will eat me instead."✩°｡⋆⸜ 🎧✮
 # Other info 
+
+This one is a bit important perhaps - 
+Yes i am aware of the drama surronding forsaken and i do NOT support forsaken whatsoever I simply have a hyperfixation on its lore, characters, and it itself. YOU MAY talk with me or hell even trash on forsaken a couple times but if thats all your gonna do infront of me all the time then just dont talk to me whatsoever - I hate forsaken for its bad stuff too trust me but I still like the lore characters etc so its a bit awkward and annoying . UNLESS OOMFS / WITH PERMISSION  
+
+I really dont care about you think of certain things - If one of those things are in my friends or if my friends are that certain thing Do not be Rude to my oomfs NOR me if your rude to me im simply most likely going to block you or ignore you if your rude to my oomfs then the same thing but i will lash out at you 
+
+Once more If i sound rude at times I most likely dont often mean it and if i do its because im upset PEOPLE have emotions . Im not always going to be whimsy and joyous and sometimes i dont even realize how i sound i apologize . 
+
+Do not Hate on my Yumeship and or Favorite characters its uncomfortable as hell And even if you Do at ALL keep it normal and dont go too far [No expections to this part]. Only 1 expection YK WHO YOU AREE DEAR COSMO LOVER . <3
+
 Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC . I accept other 1x1x1x1 kins im just uncomfortable w / other yumeshippers 
 
 Other 1x1 yumeshippers MAY c+h w me if im 1x1 or any character but maybe just iwvec or dont mention the yumeshipping part, then idm!. 
@@ -74,11 +84,16 @@ Ihasafacelulz
 Skatinggrease
 
 Limbus company
+
 ---𓍢ִ໋🌷͙֒
 Args 
+
 Minecraft horror mods 
+
 Analog horror / Horror in general 
+
 Making cosplays in games 
+
 ⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱
 <img width="687" height="417" alt="image" src="https://github.com/user-attachments/assets/4ef796ab-56cd-4186-9425-d372c71a45c6" />
 
