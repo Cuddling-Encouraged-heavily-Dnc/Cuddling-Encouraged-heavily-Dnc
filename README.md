@@ -134,7 +134,7 @@ Finn/Will - Buildershed Fan heh
 
 Teto - Cuddler + Love there husband <3 ❤️
 
-Vaux - #1 jamie glazer 💚 !! 
+Vaux - #1 jamie glazer 💚 + Death counts georg !! 
 
 Stormy - Masochistic crayon eater 🖍️🔥
 
