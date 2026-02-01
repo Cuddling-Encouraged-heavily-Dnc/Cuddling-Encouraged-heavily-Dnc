@@ -155,3 +155,6 @@ Stormy - Masochistic crayon eater 🖍️🔥
 
 Cat - Shellvision CEO !! 💚💛 
 
+
+
+<img width="830" height="362" alt="image" src="https://github.com/user-attachments/assets/07f4a5da-b9d3-44cd-931f-1cd04e472f3d" />
