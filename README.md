@@ -2,6 +2,7 @@
 # ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა "Urgh . I **SEE** you .." 
 <img width="641" height="416" alt="image" src="https://github.com/user-attachments/assets/9aa41faf-9e34-4464-9518-0bcb22df2553" />
 Ceo of Bittersweet / Chococlate basket / Easter basket / whatever the hell people use for cocoa x bassie . 
+.
  Hello, greetings Its Nice to see you here - Im Ayumi. This Is for Ponytown only Just so you can get to know me a bit before you want to interact with me or if your just being a bit of a stalker /Silly  - If you happen to see me and are too shy to approach, Dont be. Im friendly And dont be shy to c+h either.
  Btw if i follow you on github it means i think ur cool and i want to be your friend because ur cool ok? ok.
  [Most likely no follow backs unless I like you.]
