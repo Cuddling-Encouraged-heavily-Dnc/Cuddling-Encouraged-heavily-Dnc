@@ -4,6 +4,7 @@
 
  Hello, greetings Its Nice to see you here - Im Ayumi. This Is for Ponytown only Just so you can get to know me a bit before you want to interact with me or if your just being a bit of a stalker /Silly  - If you happen to see me and are too shy to approach, Dont be. Im friendly And dont be shy to c+h either.
  Btw if i follow you on github it means i think ur cool and i want to be your friend because ur cool ok? ok.
+ [Most likely no follow backs unless I like you.]
 
  ──★ ˙ ̟ !! "MY NAME IS BRUTUS AND MY NAME MEANS HEAVY ! SO WITH A HEAVY HEART ILL GUIDE THIS DAGGER THROUGH THE HEART OF MY ENEMY ! MY WHOLE LIFE YOU WERE A FRIEND AND TEACHER TO ME , PLEASE KNOW MY ACTIONS ARE NOT ONLY MOTIVATED BY ENVY ! I TOO HAVE A DESTINY  THIS DEATH WILL BE ART! " /LYR !!  ──★ ˙ ̟ !!
 
@@ -14,7 +15,7 @@ if u wana be friends or sum ig follow me or jst yk appraoch me in ponytown like 
 
  Oh and if your a yumeshipper [NOT a dupe of my yumeship] int freely actually i even Enc you 2 do so! Its comforting to have other yumeshippers around ill respect ur yumeship aslong as u respect mine . ! I respect Touch triggers and crowd discomfort so sorry if i accidently passs your boundaries Im a bit too used to being overly touchy? if that makes sense ingame. Just tell me NICELY. to stop . keyword:NICELY. 
 
- Dont know much about 'sys' or 'systems' or anything but i try 2 respect  everyone. 
+ im not that informed on systems [Sys] but i do my best to respect everyone, Forgive me if i say something stupid, and or make you uncomfortable / etc
 
 Oh and fyi im a minor im under 16y but im over 13y Iwc 18+ year olds.
 
@@ -37,13 +38,14 @@ if you wanna cud as certain characters idm jst ask me to swap characters lmao !
 
 I can move from a spot most of the time if you just ask nicely.
 
-I block FREELY sorry if you were blocked
+I block FREELY sorry if you were blocked [Unless you were one of the proshippers/Darkshippers i blocked then Fuck off <3 .]
 
-You may Int freely most of the time unless i have 'NV' in my name . i will not respond to you or perhaps just want to be left alone at that moment thank you. If you want just whisper me and ill respond later on.
+You may Int freely most of the time as i am very often bored and looking for conversations to engage in -  unless i have 'NV' in my name . i will not respond to you or perhaps just want to be left alone at that moment thank you. If you want just whisper me and ill respond later on.
 
 
 
 ⊹ ࣪ ˖💢 ꫂ ၴႅၴ ₊ ⊹"Throw me to the wolves, Punish me for your sins BURDEN me with your guilt so it will eat me instead."✩°｡⋆⸜ 🎧✮
+
 # Other info 
 
 This one is a bit important perhaps - 
@@ -55,11 +57,17 @@ Once more If i sound rude at times I most likely dont often mean it and if i do 
 
 Do not Hate on my Yumeship and or Favorite characters its uncomfortable as hell And even if you Do at ALL keep it normal and dont go too far [No expections to this part]. Only 1 expection YK WHO YOU AREE DEAR COSMO LOVER . <3
 
-Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC . I accept other 1x1x1x1 kins im just uncomfortable w / other yumeshippers 
+Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC . I accept other 1x1x1x1 kins im just uncomfortable w / other yumeshippers + Other 1x1 yumeshippers MAY c+h w me if im 1x1 or any character but maybe just iwvec or dont mention the yumeshipping part, then idm!. 
 
-Other 1x1 yumeshippers MAY c+h w me if im 1x1 or any character but maybe just iwvec or dont mention the yumeshipping part, then idm!. 
+Also Yes i am a minor but im extremely  desensitized to most things so you can absolutely have serious conversations around me or with me and i wouldnt mind hell i even like those conversations ...  **BUT** Do not be weird. and mind yourself to not say anything weird towards me [if your older then me aka above 17 or mostly 18+] Your a weirdo if you do so . 
 
-My fandoms are and or Interests in general
+i cant believe im saying this but please do not get romantic feelings for me no matter how close you are to my age. i say this because countless friendships of mine had ended up by my friend confessing and its really upseting since im just not looking for that.
+
+My fandoms are and or Interests in general 
+
+[Warning:Just because i say im in these fandoms doesnt mean i know everything or even that much about these fandoms . I JUST LIKE THEM AND OR LORE / CHARACTERS OF IT.]
+
+Gacha club [gl and gl2 aswell]
 
 Forsaken 
 
@@ -85,6 +93,10 @@ Skatinggrease
 
 Limbus company
 
+Fnaf
+
+Cookie run kingdom
+
 ---𓍢ִ໋🌷͙֒
 Args 
 
@@ -93,6 +105,10 @@ Minecraft horror mods
 Analog horror / Horror in general 
 
 Making cosplays in games 
+
+Drawing . 
+
+have a hyperfixation on Shipping i love conversations about ships so go ahead and yap about them !! .
 
 ⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱
 <img width="687" height="417" alt="image" src="https://github.com/user-attachments/assets/4ef796ab-56cd-4186-9425-d372c71a45c6" />
