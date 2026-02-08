@@ -1,8 +1,9 @@
-# Oh Hello ... 
+# " ! ... Oh Hello. " 
 
-Ceo of Bittersweet / Chococlate basket / Easter basket / whatever the hell people use for cocoa x bassie~ . 
+Im THE Ceo of Bittersweet / Chococlate basket / Easter basket / whatever the hell people use for cocoa x bassie~ . 
 
-<img width="474" height="460" alt="image" src="https://github.com/user-attachments/assets/f203a797-91dd-4ee8-aaf7-dda4548d2bcc" />
+<img width="661" height="418" alt="image" src="https://github.com/user-attachments/assets/90dd06fe-21c5-4206-b3b8-e5d973b54689" />
+
 
 
 
@@ -129,7 +130,7 @@ have a hyperfixation on Shipping i love conversations about ships so go ahead an
 Do not have many characters im uncomf with or rather hate really. 
 # Ship information -
 **First of all the ships i like / love** -Nosferatu x Spectre 𓍢ִ໋🌷͙֒Noob666 <3 💤 Johnjane,💤 Brightsky i prefer brightTelamon but there both the same anyways basically,💤 Azuretime, 💤Burgericecream [007n7 x 008o8],💤 Carmilla x cecilion💫, Alpha x Angela. 💫 Hacklord n brighteyes -💫 Hacklord x telamon 💫 Uzi x N -. And Pr3ttybluudud  .˚ ༘ ೀ⋆｡˚Bassie x Cocoa
-𓍢ִ໋🌷͙֒ Fruitcake 💫 Shellvision 💤 MoonFlower𓍢ִ 𓍢ִ໋🌷͙֒ - jewelry Box 𓍢ִ໋🌷͙֒💤 Starter Duo. 𐙚🧸ྀི GambleGhost 🧸💫 Cocoa x rudie and Soulvester x bassie [heavily prefer bassie x cocoa tho]
+𓍢ִ໋🌷͙֒ Fruitcake 💫 Shellvision 💤 MoonFlower𓍢ִ 𓍢ִ໋🌷͙֒ - jewelry Box 𓍢ִ໋🌷͙֒💤 Starter Duo. 𐙚🧸ྀི GambleGhost 🧸💫 Cocoa x rudie and Soulvester x bassie [heavily prefer bassie x cocoa tho] - OrnamentCookie!!! <33 
 
 **Now for ones I dislike / hate -** 
 
