@@ -1,9 +1,19 @@
+# Oh Hello ... 
+
+Ceo of Bittersweet / Chococlate basket / Easter basket / whatever the hell people use for cocoa x bassie~ . 
+
+<img width="474" height="460" alt="image" src="https://github.com/user-attachments/assets/f203a797-91dd-4ee8-aaf7-dda4548d2bcc" />
+
+
+
 # ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆
 # ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა "Urgh . I **SEE** you .." 
 <img width="641" height="416" alt="image" src="https://github.com/user-attachments/assets/9aa41faf-9e34-4464-9518-0bcb22df2553" />
-Ceo of Bittersweet / Chococlate basket / Easter basket / whatever the hell people use for cocoa x bassie . 
+
 .
- Hello, greetings Its Nice to see you here - Im Ayumi. This Is for Ponytown only Just so you can get to know me a bit before you want to interact with me or if your just being a bit of a stalker /Silly  - If you happen to see me and are too shy to approach, Dont be. Im friendly And dont be shy to c+h either.
+ # Hello, greetings Its Nice to see you here - Im Ayumi. 
+ This Is for Ponytown only Just so you can get to know me a bit before you want to interact with me or if your just being a bit of a stalker /Silly  -
+ If you happen to see me and are too shy to approach, Dont be. Im friendly And dont be shy to c+h either.
  Btw if i follow you on github it means i think ur cool and i want to be your friend because ur cool ok? ok.
  [Most likely no follow backs unless I like you.]
 
@@ -118,8 +128,13 @@ have a hyperfixation on Shipping i love conversations about ships so go ahead an
  - Absolute on top are of course 1x1x1x1 and telamon ehe along with shedletsky ₍^⸝⸝> ·̫ <⸝⸝ ^₎ Hacklord Including 2x2 - Azure, Two time, Jane doe, Amarah - aswell as C00lkid - Noli . Dyrroth, Argus, Helcurt, Broken spawn, pursuer [4saken ver sorry DoD fans.]. Yi xi. AUBREE !! +Jxdx1 ! , Datagen
 Do not have many characters im uncomf with or rather hate really. 
 # Ship information -
-**First of all the ships i like / love** -Nosferatu x Spectre 𓍢ִ໋🌷͙֒Noob666 <3 💤 Johnjane,💤 Brightsky i prefer brightTelamon but there both the same anyways basically,💤 Azuretime, 💤Burgericecream [007n7 x 008o8],💤 Carmilla x cecilion💫, Alpha x Angela. 💫 Hacklord n brighteyes -💫 Hacklord x telamon 💫 Uzi x N -. And Pr3ttybluudud  .˚ ༘ ೀ⋆｡˚ 
-**Now for ones I dislike / hate -** [Bow = Unless friend] [Clip = unless Close friend / Best friend] [Explosion = Do not int at all / Possible block since i block FREELY.]
+**First of all the ships i like / love** -Nosferatu x Spectre 𓍢ִ໋🌷͙֒Noob666 <3 💤 Johnjane,💤 Brightsky i prefer brightTelamon but there both the same anyways basically,💤 Azuretime, 💤Burgericecream [007n7 x 008o8],💤 Carmilla x cecilion💫, Alpha x Angela. 💫 Hacklord n brighteyes -💫 Hacklord x telamon 💫 Uzi x N -. And Pr3ttybluudud  .˚ ༘ ೀ⋆｡˚Bassie x Cocoa
+𓍢ִ໋🌷͙֒ Fruitcake 💫 Shellvision 💤 MoonFlower𓍢ִ 𓍢ִ໋🌷͙֒ - jewelry Box 𓍢ִ໋🌷͙֒💤 Starter Duo. 𐙚🧸ྀི GambleGhost 🧸💫 Cocoa x rudie and Soulvester x bassie [heavily prefer bassie x cocoa tho]
+
+**Now for ones I dislike / hate -** 
+
+[Bow = Unless friend] [Clip = unless Close friend / Best friend] [Explosion = Do not int at all / Possible block since i block FREELY.]
+
 Doublefedora [Iwec] [🔗]
 
 77noli Iwc [🎀]
@@ -139,6 +154,14 @@ c00lkid x 007n7 [4saken] [💥] [DNI]
 Any Child x Adult / Child x Parent Ship [💥]
 
 Jx1dx1 x Aubree [🔗/💥/🎀] [Dni/IWVEC I Have mixed feelings sorry for adding all three]
+
+Strawberrycookie [💥] [Dni unless crowning or need help w/smth.] [Sorry But due to bad expriences i feel uncomfortable . Only expection is friends i already know who ship it.]
+
+MoonShell [Iwc] [🎀] [idm it much.]
+
+Funnyberry [🔗/💥] [Same reason as strawberrycookie but a bit less harsh]
+
+
 
 ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── 
 
