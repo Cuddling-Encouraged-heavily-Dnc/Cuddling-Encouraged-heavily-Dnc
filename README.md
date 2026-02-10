@@ -181,14 +181,13 @@ Jx1dx1 - The REAL jx1dx1 🟥 @Sk1ttlezWasH3re
 
 Vitix -  = #1 פרחים fan!!!! @Vitix-WeirdFrutiger-collective
 
-Gabe - Wooly's OFFICAL husband🐑 + Cosmo lover🍰[Wooly would never like bro /Heavy j I love you hon/P]
+Gabe - Wooly's OFFICAL husband🐑 + Cosmo lover🍰
 
 Mellow - Cats are LIFE!1!
 
 Azure/Zap - Youtube Addict 
 
-Chii chii - "Goo goo ga ga 👶 "  @Chii1-chips |Why did they give me this?..Love ya anyways ok /platonic|
-
+Chii chii - "Goo goo ga ga 👶 "  @Chii1-chips 
 Blueberry/Azure - Azure's offical Wife yeah . + #1 azure fan
 
 Finn/Will - Buildershed Fan heh
