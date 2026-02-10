@@ -168,15 +168,18 @@ Funnyberry [🔗/💥] [Same reason as strawberrycookie but a bit less harsh]
 
 ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── 
 
-My oomfs who i love sm - 
+My oomfs who i love sm + people you should go check out AND NOWWWW THERE SO COOL ILYSM OOMFS :D <3 
+
+@gnarpyorcube
+@d0llym3nhera
 
 Zed - 1# Hacklord n Erlking fan 
 
-Roka/Trigger - "Im Ticket Takers wifie" + *I can't decide whether you should live or* **DIE** ! 
+Roka/Trigger - "Im Ticket Takers wifie" + *I can't decide whether you should live or* **DIE** ! @Roka-A-Triggermultifandom
 
-Jx1dx1 - The REAL jx1dx1 🟥
+Jx1dx1 - The REAL jx1dx1 🟥 @Sk1ttlezWasH3re
 
-Vitix -  = #1 פרחים fan!!!! 
+Vitix -  = #1 פרחים fan!!!! @Vitix-WeirdFrutiger-collective
 
 Gabe - Wooly's OFFICAL husband🐑 + Cosmo lover🍰[Wooly would never like bro /Heavy j I love you hon/P]
 
@@ -184,7 +187,7 @@ Mellow - Cats are LIFE!1!
 
 Azure/Zap - Youtube Addict 
 
-Chii chii - "Goo goo ga ga 👶 "  |Why did they give me this?..Love ya anyways ok /platonic|
+Chii chii - "Goo goo ga ga 👶 "  @Chii1-chips |Why did they give me this?..Love ya anyways ok /platonic|
 
 Blueberry/Azure - Azure's offical Wife yeah . + #1 azure fan
 
