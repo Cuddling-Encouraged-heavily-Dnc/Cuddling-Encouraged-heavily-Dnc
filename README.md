@@ -189,7 +189,7 @@ Azure/Zap - Youtube Addict
 
 Chii chii - "Goo goo ga ga 👶 "  @Chii1-chips 
 
-Blueberry/Azure - Azure's offical Wife yeah . + #1 azure fan
+Blueberry/Azure - Azure Lover + #1 azure fan
 
 Finn/Will - Buildershed Fan heh
 
