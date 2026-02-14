@@ -11,6 +11,7 @@ Im THE Ceo of Bittersweet / Chococlate basket / Easter basket / whatever the hel
 # ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა "Urgh . I **SEE** you .." 
 <img width="641" height="416" alt="image" src="https://github.com/user-attachments/assets/9aa41faf-9e34-4464-9518-0bcb22df2553" />
 
+ # Go sign my atabook ^_^ !!!!
 .
  # Hello, greetings Its Nice to see you here - Im Ayumi. 
  This Is for Ponytown only Just so you can get to know me a bit before you want to interact with me or if your just being a bit of a stalker /Silly  -
@@ -18,7 +19,6 @@ Im THE Ceo of Bittersweet / Chococlate basket / Easter basket / whatever the hel
  Btw if i follow you on github it means i think ur cool and i want to be your friend because ur cool ok? ok.
  [Most likely no follow backs unless I like you.]
 
- Go sign my atabook ^_^
 
  ──★ ˙ ̟ !! "MY NAME IS BRUTUS AND MY NAME MEANS HEAVY ! SO WITH A HEAVY HEART ILL GUIDE THIS DAGGER THROUGH THE HEART OF MY ENEMY ! MY WHOLE LIFE YOU WERE A FRIEND AND TEACHER TO ME , PLEASE KNOW MY ACTIONS ARE NOT ONLY MOTIVATED BY ENVY ! I TOO HAVE A DESTINY  THIS DEATH WILL BE ART! " /LYR !!  ──★ ˙ ̟ !!
 
