@@ -28,7 +28,9 @@ if u wana be friends or sum ig follow me or jst yk appraoch me in ponytown like 
 
  im not that informed on systems [Sys] but i do my best to respect everyone, Forgive me if i say something stupid, and or make you uncomfortable / etc
 
-Oh and fyi im a minor im under 17y but im over 13y Iwc 18+ year olds.
+Oh and fyi im a minor im under 17y but im over 13y Iwc 18+ year olds. 
+
+Read other readmes for other information + might update randomly extremely randomly lmao .
 
 🎧ྀི "They'll **kill** a girl for dancing dont talk to me again! BLEGH!"౨ৎ⋆˚｡⋆
 
