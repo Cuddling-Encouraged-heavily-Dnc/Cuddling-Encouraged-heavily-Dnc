@@ -1,6 +1,6 @@
 # " ! ... Oh Hello. " 
 
-Im THE Ceo of Bittersweet / Chococlate basket / Easter basket / whatever the hell people use for cocoa x bassie~ . 
+Im THE Ceo of Bittersweet / Chococlate basket / Easter basket / cocoa x bassie~ . 
 
 <img width="661" height="418" alt="image" src="https://github.com/user-attachments/assets/90dd06fe-21c5-4206-b3b8-e5d973b54689" />
 
@@ -48,7 +48,9 @@ Please do not cover me its a bit annoying unless your cuddling then idm.
 
 I dont have crowd discomfort nessacerily but if we are talking and im in a bit of a crowd and being covered i will find it a bit uncomfort at times since i hate being covered
 
-if you wanna cud as certain characters idm jst ask me to swap characters lmao ! 
+if you wanna cud as certain characters idm jst ask me to swap characters lmao !  
+
+I LOVE matching characters ( even if enemies or etc lore wise) plspls match skins with me ill marry you (unless u dont want to) i swear ./PLATONIC ONLY LOL.
 
 I can move from a spot most of the time if you just ask nicely.
 
@@ -71,7 +73,9 @@ Once more If i sound rude at times I most likely dont often mean it and if i do 
 
 Do not Hate on my Yumeship and or Favorite characters its uncomfortable as hell And even if you Do at ALL keep it normal and dont go too far [No expections to this part]. Only 1 expection YK WHO YOU AREE DEAR COSMO LOVER . <3
 
-Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC . I accept other 1x1x1x1 kins im just uncomfortable w / other yumeshippers + Other 1x1 yumeshippers MAY c+h w me if im 1x1 or any character but maybe just iwvec or dont mention the yumeshipping part, then idm!. 
+Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC . w / other yumeshippers + Other 1x1 yumeshippers MAY c+h w me if im 1x1 or any character but maybe just iwvec or dont mention the yumeshipping part, then idm!.  . 
+
+I am now a bit uncomf with other 1x1 kins and if you claim to be his 1# fan . i prefer if you dni / iwvec unless i knew you before . and or feel comf with you .  No excuses on calling yourself his 1# fan i WILL hide you perm ./ for 24h
 
 Also Yes i am a minor but im extremely  desensitized to most things so you can absolutely have serious conversations around me or with me and i wouldnt mind hell i even like those conversations ...  **BUT** Do not be weird. and mind yourself to not say anything weird towards me [if your older then me aka above 17 or mostly 18+] Your a weirdo if you do so . 
 
