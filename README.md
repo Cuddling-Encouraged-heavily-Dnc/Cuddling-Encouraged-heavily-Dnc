@@ -81,52 +81,6 @@ Also Yes i am a minor but im extremely  desensitized to most things so you can a
 
 i cant believe im saying this but please do not get romantic feelings for me no matter how close you are to my age. i say this because countless friendships of mine had ended up by my friend confessing and its really upseting since im just not looking for that.
 
-My fandoms are and or Interests in general 
-
-[Warning:Just because i say im in these fandoms doesnt mean i know everything or even that much about these fandoms . I JUST LIKE THEM AND OR LORE / CHARACTERS OF IT.]
-
-Gacha club [gl and gl2 aswell]
-
-Forsaken 
-
-Dandys world 
-
-Mlbb / mobile legends bang bang 
-
-Murder drones 
-
-The amazing digital circus 
-
-Minecraft 
-
-Roblox 
-
-Let him go 
-
-Blair
-
-Ihasafacelulz
-
-Skatinggrease
-
-Limbus company
-
-Fnaf
-
-Cookie run kingdom
-
----𓍢ִ໋🌷͙֒
-Args 
-
-Minecraft horror mods 
-
-Analog horror / Horror in general 
-
-Making cosplays in games 
-
-Drawing . 
-
-have a hyperfixation on Shipping i love conversations about ships so go ahead and yap about them !! .
 
 ⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱
 <img width="687" height="417" alt="image" src="https://github.com/user-attachments/assets/4ef796ab-56cd-4186-9425-d372c71a45c6" />
