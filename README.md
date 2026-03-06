@@ -134,7 +134,7 @@ Zed - 1# Hacklord n Erlking fan
 
 Roka/Trigger - "Im Ticket Takers wifie" + *I can't decide whether you should live or* **DIE** ! @Roka-A-Triggermultifandom
 
-Jx1dx1 - The REAL jx1dx1 🟥 @Sk1ttlezWasH3re
+Jx1dx1 - ETT yaoimaster @Sk1ttlezWasH3re
 
 Vitix -  = #1 פרחים fan!!!! @Vitix-WeirdFrutiger-collective
 
