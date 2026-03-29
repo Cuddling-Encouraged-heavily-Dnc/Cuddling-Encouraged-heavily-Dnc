@@ -6,7 +6,7 @@ Im THE Ceo of Bittersweet / cocoa x bassie~ .  Doubles are completely okay XDD !
   Go sign my atabook ^_^ !!!!
 
   
-.
+
  #.. Well hello!! . Im ayumi !. 
  GITHUB is strictly for pt - Some of this is BYI information or INT/DNI'S but most of this is Me just going on about myself because its fun ! .. so uh yeah Anyways im aubree hi i love bnuys  . Sorry but i do not follow back if i ever do i think ur super cool and or your my oomfie ..
 
