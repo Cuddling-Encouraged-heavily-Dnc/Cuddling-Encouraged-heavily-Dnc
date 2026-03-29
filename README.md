@@ -11,7 +11,7 @@ Im THE Ceo of Bittersweet / cocoa x bassie~ .  Doubles are completely okay XDD !
  Btw if i follow you on github it means i think ur cool and i want to be your friend because ur cool ok? ok.
  [Most likely no follow backs unless I like you.]
 
-
+Trigger warning: yapping ./Hvj Joke ok 
  ──★ ˙ ̟ !! "MY NAME IS BRUTUS AND MY NAME MEANS HEAVY ! SO WITH A HEAVY HEART ILL GUIDE THIS DAGGER THROUGH THE HEART OF MY ENEMY ! MY WHOLE LIFE YOU WERE A FRIEND AND TEACHER TO ME , PLEASE KNOW MY ACTIONS ARE NOT ONLY MOTIVATED BY ENVY ! I TOO HAVE A DESTINY  THIS DEATH WILL BE ART! " /LYR !!  ──★ ˙ ̟ !!
 
 # ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
