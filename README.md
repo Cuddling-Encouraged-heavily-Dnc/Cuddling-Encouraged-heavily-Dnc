@@ -50,7 +50,11 @@ Please do not cover me its a bit annoying unless your cuddling then idm.
 
 I dont have crowd discomfort nessacerily but if we are talking and im in a bit of a crowd and being covered i will find it a bit uncomfort at times since i hate being covered
 
-if you wanna cud as certain characters idm jst ask me to swap characters lmao !  
+<img width="137" height="142" alt="image" src="https://github.com/user-attachments/assets/8a1608e9-8b12-412c-800b-538c0bf09fa1" />
+   ~ .   if you wanna cud as certain characters
+   ...
+                          
+  ~                                          idm jst ask me to swap characters lmao !   '    , 
 
 ૮₍ ˃ ⤙ ˂ ₎ა
 
@@ -72,7 +76,8 @@ You may Int freely most of the time as i am very often bored and looking for con
 This one is a bit important perhaps - 
 Yes i am aware of the drama surronding forsaken and i do NOT support forsaken whatsoever I simply have a hyperfixation on its lore, characters, and it itself. YOU MAY talk with me or hell even trash on forsaken a couple times but if thats all your gonna do infront of me all the time then just dont talk to me whatsoever - I hate forsaken for its bad stuff too trust me but I still like the lore characters etc so its a bit awkward and annoying . UNLESS OOMFS / WITH PERMISSION  
 
-‧₊˚🖇️✩ ₊˚🎧⊹♡ ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ 🃜🃚🃖🃁🂭🂺 !!!
+‧₊˚🖇️✩ ₊˚🎧⊹♡ ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ 🃜🃚🃖🃁🂭🂺 !!! <img width="417" height="318" alt="image" src="https://github.com/user-attachments/assets/e9586817-a8a9-4bea-ac1a-683fece54dc0" />
+
 
 I really dont care about you think of certain things - If one of those things are in my friends or if my friends are that certain thing Do not be Rude to my oomfs NOR me if your rude to me im simply most likely going to block you or ignore you if your rude to my oomfs then the same thing but i will lash out at you 
 
@@ -84,11 +89,16 @@ Do not Hate on my Yumeship and or Favorite characters its uncomfortable as hell 
 
 Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC . w / other yumeshippers + Other 1x1 yumeshippers MAY c+h w me if im 1x1 or any character but maybe just iwvec or dont mention the yumeshipping part, then idm!.  . 
 
-I am now a bit uncomf with other 1x1 kins and if you claim to be his 1# fan . i prefer if you dni / iwvec unless i knew you before . and or feel comf with you .  No excuses on calling yourself his 1# fan i WILL hide you perm ./ for 24h , IM ALSO a aubree Fiction kin + Aubree irl dbles can either . iwec or..dni :( soz! selective sharing fictionkin with aubree tho as long as i think your cool and your fine ok? . ok.!! ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა !! 
+I am now a bit uncomf with other 1x1 kins and if you claim to be his 1# fan . i prefer if you dni / iwvec unless i knew you before . and or feel comf with you .  No excuses on calling yourself his 1# fan i WILL hide you perm ./ for 24h , IM ALSO a aubree Fiction kin + Aubree irl dbles can either . iwec or..dni :( soz! selective sharing fictionkin with aubree tho as long as i think your cool and your fine ok? . ok.!! ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა !!
+
+<img width="67" height="72" alt="image" src="https://github.com/user-attachments/assets/2729afb9-c4ce-4b19-aa03-c1743af67b28" />
+
 
 Also Yes i am a minor but im extremely  desensitized to most things so you can absolutely have serious conversations around me or with me and i wouldnt mind hell i even like those conversations ...  **BUT** Do not be weird. and mind yourself to not say anything weird towards me [if your older then me aka above 17 or mostly 18+] Your a weirdo if you do so .  (˶˃ᆺ˂˶) Do not ask me for my age if i dont know you or personal information . please. thanks.
 
-i cant believe im saying this but please do not get romantic feelings for me no matter how close you are to my age. i say this because countless friendships of mine had ended up by my friend confessing and its really upseting since im just not looking for that. DO. NOT. ASK. ME. OUT. FLIRTING IN JOKES IS OKAY! DO NOT BE SERIOUS. ₍⑅ᐢ..ᐢ₎
+i cant believe im saying this but please do not get romantic feelings for me no matter how close you are to my age. i say this because countless friendships of mine had ended up by my friend confessing and its really upseting since im just not looking for that. DO. NOT. ASK. ME. OUT. FLIRTING IN JOKES IS OKAY! DO NOT BE SERIOUS. ₍⑅ᐢ..ᐢ₎   
+
+
 
 𝐵𝑜𝑟𝑛 𝑡𝑜 𝑑𝑖𝑒.
 ⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱
