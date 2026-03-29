@@ -5,7 +5,6 @@ Im THE Ceo of Bittersweet / Chococlate basket / Easter basket / cocoa x bassie~ 
 <img width="661" height="418" alt="image" src="https://github.com/user-attachments/assets/90dd06fe-21c5-4206-b3b8-e5d973b54689" />
 
 # ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆
-# ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა "Urgh . I **SEE** you .." 
 <img width="641" height="416" alt="image" src="https://github.com/user-attachments/assets/9aa41faf-9e34-4464-9518-0bcb22df2553" />
 
  # Go sign my atabook ^_^ !!!!
