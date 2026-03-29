@@ -1,13 +1,9 @@
-# " ! ... Oh Hello. " 
-
-Im THE Ceo of Bittersweet / Chococlate basket / Easter basket / cocoa x bassie~ . 
+Im THE Ceo of Bittersweet / cocoa x bassie~ .  Doubles are completely okay XDD !!
 
 <img width="661" height="418" alt="image" src="https://github.com/user-attachments/assets/90dd06fe-21c5-4206-b3b8-e5d973b54689" />
 
 # ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆
-<img width="641" height="416" alt="image" src="https://github.com/user-attachments/assets/9aa41faf-9e34-4464-9518-0bcb22df2553" />
-
- # Go sign my atabook ^_^ !!!!
+  Go sign my atabook ^_^ !!!!
 .
  # Hello, greetings Its Nice to see you here - Im Ayumi. 
  This Is for Ponytown only Just so you can get to know me a bit before you want to interact with me or if your just being a bit of a stalker /Silly  -
@@ -31,7 +27,8 @@ Oh and fyi im a minor im under 17y but im over 13y Iwc 18+ year olds.
 
 Read other readmes for other information + might update randomly extremely randomly lmao .
 
-🎧ྀི "They'll **kill** a girl for dancing dont talk to me again! BLEGH!"౨ৎ⋆˚｡⋆
+
+ 🎧ྀི "They'll **kill** a girl for dancing dont talk to me again! BLEGH!"౨ৎ⋆˚｡⋆
 
 ───────────────────────────────────────────────────────────────────────────────────────
 # Ponytown Info. 
@@ -73,18 +70,18 @@ Do not Hate on my Yumeship and or Favorite characters its uncomfortable as hell 
 
 Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC . w / other yumeshippers + Other 1x1 yumeshippers MAY c+h w me if im 1x1 or any character but maybe just iwvec or dont mention the yumeshipping part, then idm!.  . 
 
-I am now a bit uncomf with other 1x1 kins and if you claim to be his 1# fan . i prefer if you dni / iwvec unless i knew you before . and or feel comf with you .  No excuses on calling yourself his 1# fan i WILL hide you perm ./ for 24h
+I am now a bit uncomf with other 1x1 kins and if you claim to be his 1# fan . i prefer if you dni / iwvec unless i knew you before . and or feel comf with you .  No excuses on calling yourself his 1# fan i WILL hide you perm ./ for 24h , IM ALSO a aubree Fiction kin + Aubree irl dbles can either . iwec or..dni :( soz! selective sharing fictionkin with aubree tho as long as i think your cool and your fine ok? . ok.!!
 
 Also Yes i am a minor but im extremely  desensitized to most things so you can absolutely have serious conversations around me or with me and i wouldnt mind hell i even like those conversations ...  **BUT** Do not be weird. and mind yourself to not say anything weird towards me [if your older then me aka above 17 or mostly 18+] Your a weirdo if you do so . 
 
-i cant believe im saying this but please do not get romantic feelings for me no matter how close you are to my age. i say this because countless friendships of mine had ended up by my friend confessing and its really upseting since im just not looking for that.
+i cant believe im saying this but please do not get romantic feelings for me no matter how close you are to my age. i say this because countless friendships of mine had ended up by my friend confessing and its really upseting since im just not looking for that. DO. NOT. ASK. ME. OUT. FLIRTING IN JOKES IS OKAY! DO NOT BE SERIOUS.
 
 
 ⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱
 <img width="687" height="417" alt="image" src="https://github.com/user-attachments/assets/4ef796ab-56cd-4186-9425-d372c71a45c6" />
 
 # Favorite characters . 
- - Absolute on top are of course 1x1x1x1 and telamon ehe along with shedletsky ₍^⸝⸝> ·̫ <⸝⸝ ^₎ Hacklord Including 2x2 - Azure, Two time, Jane doe, Amarah - aswell as C00lkid - Noli . Dyrroth, Argus, Helcurt, Broken spawn, pursuer [4saken ver sorry DoD fans.]. Yi xi. AUBREE !! +Jxdx1 ! , Datagen
+ - Absolute on top are of course 1x1x1x1 and telamon along with shedletsky  and of course AUBREE!!! ₍^⸝⸝> ·̫ <⸝⸝ ^₎ Hacklord Including 2x2 - Azure, Two time,Jane doe, Amarah - aswell as C00lkid - Noli . Dyrroth, Argus, Helcurt, Broken spawn, pursuer [4saken ver sorry DoD fans.]. Yi xi. AUBREE !! +Jxdx1 ! , Datagen
 Do not have many characters im uncomf with or rather hate really. 
 # Ship information -
 **First of all the ships i like / love** -Nosferatu x Spectre 𓍢ִ໋🌷͙֒Noob666 <3 💤 Johnjane,💤 Brightsky i prefer brightTelamon but there both the same anyways basically,💤 Azuretime, 💤Burgericecream [007n7 x 008o8],💤 Carmilla x cecilion💫, Alpha x Angela. 💫 Hacklord n brighteyes -💫 Hacklord x telamon 💫 Uzi x N -. And Pr3ttybluudud  .˚ ༘ ೀ⋆｡˚Bassie x Cocoa
@@ -94,7 +91,7 @@ Do not have many characters im uncomf with or rather hate really.
 
 [Bow = Unless friend] [Clip = unless Close friend / Best friend] [Explosion = Do not int at all / Possible block since i block FREELY.]
 
-Doublefedora [Iwec] [🔗]
+Doublefedora [Iwvec] [🔗]
 
 77noli Iwc [🎀]
 
@@ -102,13 +99,13 @@ Pizzaburger [Iwec] [🎀]
 
 Paycheck [Iwc] [Just dont ship it]
 
-Admin virus [💥] / [Iwvec]
+Admin virus [💥] 
 
 1xDoe [💥] / [Iwvec] 
 
 Any 1x1 Ship in general - [💥] / [Iwvec]
 
-c00lkid x 007n7 [4saken] [💥] [DNI] 
+c00lkid x 007n7 [4saken] [💥] [DNI you are disgusting .]
 
 Any Child x Adult / Child x Parent Ship [💥]
 
@@ -120,6 +117,7 @@ MoonShell [Iwc] [🎀] [idm it much.]
 
 Funnyberry [🔗/💥] [Same reason as strawberrycookie but a bit less harsh]
 
+<img width="358" height="361" alt="image" src="https://github.com/user-attachments/assets/0e702cef-2aea-4a52-abcf-fc3a58b57949" />
 
 
 ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── 
