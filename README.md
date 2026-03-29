@@ -102,7 +102,11 @@ i cant believe im saying this but please do not get romantic feelings for me no 
 
 𝐵𝑜𝑟𝑛 𝑡𝑜 𝑑𝑖𝑒.
 ⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱
-<img width="687" height="417" alt="image" src="https://github.com/user-attachments/assets/4ef796ab-56cd-4186-9425-d372c71a45c6" />
+
+
+<img width="409" height="373" alt="image" src="https://github.com/user-attachments/assets/4fa38c33-66d9-46bb-a091-41a278bc2f75" />
+'yo is someone behind me? :o .'
+
 
 # Favorite characters . 
  - Absolute on top are of course 1x1x1x1 and telamon along with shedletsky  and of course AUBREE!!! ₍^⸝⸝> ·̫ <⸝⸝ ^₎ Hacklord Including 2x2 - Azure, Two time,Jane doe, Amarah - aswell as C00lkid - Noli . Dyrroth, Argus, Helcurt, Broken spawn, pursuer [4saken ver sorry DoD fans.]. Yi xi. AUBREE !! +Jxdx1 ! , Datagen
@@ -110,6 +114,8 @@ Do not have many characters im uncomf with or rather hate really.
 # Ship information -
 **First of all the ships i like / love** -Nosferatu x Spectre 𓍢ִ໋🌷͙֒Noob666 <3 💤 Johnjane,💤 Brightsky i prefer brightTelamon but there both the same anyways basically,💤 Azuretime, 💤Burgericecream [007n7 x 008o8],💤 Carmilla x cecilion💫, Alpha x Angela. 💫 Hacklord n brighteyes -💫 Hacklord x telamon 💫 Uzi x N -. And Pr3ttybluudud  .˚ ༘ ೀ⋆｡˚Bassie x Cocoa
 𓍢ִ໋🌷͙֒ Fruitcake 💫 Shellvision 💤 MoonFlower𓍢ִ 𓍢ִ໋🌷͙֒ - jewelry Box 𓍢ִ໋🌷͙֒💤 Starter Duo. 𐙚🧸ྀི GambleGhost 🧸💫 Cocoa x rudie and Soulvester x bassie [heavily prefer bassie x cocoa tho] - OrnamentCookie!!! <33 
+
+<img width="358" height="361" alt="image" src="https://github.com/user-attachments/assets/0e702cef-2aea-4a52-abcf-fc3a58b57949" /> 
 
 **Now for ones I dislike / hate -** 
 
@@ -141,8 +147,16 @@ MoonShell [Iwc] [🎀] [idm it much.]
 
 Funnyberry [🔗/💥] [Same reason as strawberrycookie but a bit less harsh]
 
-<img width="358" height="361" alt="image" src="https://github.com/user-attachments/assets/0e702cef-2aea-4a52-abcf-fc3a58b57949" />
 
+
+<img width="469" height="412" alt="image" src="https://github.com/user-attachments/assets/ae095a70-d5b3-49ba-8130-e10e1706f73f" />
+
+'LEAVE ME ALONE JX1DX1, LEAVE ME ALONE ALREADY!.'
+'LEAVELEAVELEAVELEAVELEAVELEAVELEAVELEAVELEAVELEAVELEAV- . . .'
+
+
+*ooc: credits 2 
+Miloll - THE #1 DOGDAY FAN for this fanart on pinterest im so sorry if this is the wrong user ....*
 
 ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── 
 
