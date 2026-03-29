@@ -16,14 +16,19 @@ Im THE Ceo of Bittersweet / cocoa x bassie~ .  Doubles are completely okay XDD !
 
 # ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 # Basic information about me.
-Im a heavy believer in people should be able to do what you want get the hell out and dont talk to me if your going to be Homophobic or transphobic or any of those - and FYI im bisexual [Questioning Aromantic and pansexual] So if that bothers you . take a stick and shove it up your ass. Im a 1x1x1x1 Kin and sometimes i might come off as rude or less energetic perhaps even dull or bland its most likely because im not in the mood or feeling irritated / Upset i apologize  for that but i promise i dont mean it.  - 
-if u wana be friends or sum ig follow me or jst yk appraoch me in ponytown like i said im always usually at bakery.
+Im a heavy believer in people should be able to do what you want get the hell out and dont talk to me if your going to be Homophobic or transphobic or any of those - and FYI im bisexual [Questioning Aromantic and pansexual] So if that bothers you . take a stick and shove it up your ass. Im a 1x1x1x1 Kin and sometimes i might come off as rude or less energetic perhaps even dull or bland its most likely because im not in the mood or feeling irritated / Upset i apologize  for that but i promise i dont mean it.  -
+.
+if u wana be friends or sum ig follow me or jst yk appraoch me in ponytown like i said im always usually at bakery/Forsaken area. ٩(ˊᗜˋ*)و ♡ 
 
  Oh and if your a yumeshipper [NOT a dupe of my yumeship] int freely actually i even Enc you 2 do so! Its comforting to have other yumeshippers around ill respect ur yumeship aslong as u respect mine . ! I respect Touch triggers and crowd discomfort so sorry if i accidently passs your boundaries Im a bit too used to being overly touchy? if that makes sense ingame. Just tell me NICELY. to stop . keyword:NICELY. 
+ 
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
  im not that informed on systems [Sys] but i do my best to respect everyone, Forgive me if i say something stupid, and or make you uncomfortable / etc
 
 Oh and fyi im a minor im under 17y but im over 13y Iwc 18+ year olds. 
+
+૮꒰ ˶• ༝ •˶꒱ა ♡ !1! ^p^ 
 
 Read other readmes for other information + might update randomly extremely randomly lmao .
 
@@ -45,14 +50,17 @@ I dont have crowd discomfort nessacerily but if we are talking and im in a bit o
 
 if you wanna cud as certain characters idm jst ask me to swap characters lmao !  
 
+૮₍ ˃ ⤙ ˂ ₎ა
+
 I LOVE matching characters ( even if enemies or etc lore wise) plspls match skins with me ill marry you (unless u dont want to) i swear ./PLATONIC ONLY LOL.
 
 I can move from a spot most of the time if you just ask nicely.
 
-I block FREELY sorry if you were blocked [Unless you were one of the proshippers/Darkshippers i blocked then Fuck off <3 .]
+ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ !! ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+
+I block FREELY sorry if you were blocked especially if you ship adminvirus/1xdoe/doublezipper [Unless you were one of the proshippers/Darkshippers i blocked then Fuck off <3 .]
 
 You may Int freely most of the time as i am very often bored and looking for conversations to engage in -  unless i have 'NV' in my name . i will not respond to you or perhaps just want to be left alone at that moment thank you. If you want just whisper me and ill respond later on.
-
 
 
 ⊹ ࣪ ˖💢 ꫂ ၴႅၴ ₊ ⊹"Throw me to the wolves, Punish me for your sins BURDEN me with your guilt so it will eat me instead."✩°｡⋆⸜ 🎧✮
@@ -62,21 +70,25 @@ You may Int freely most of the time as i am very often bored and looking for con
 This one is a bit important perhaps - 
 Yes i am aware of the drama surronding forsaken and i do NOT support forsaken whatsoever I simply have a hyperfixation on its lore, characters, and it itself. YOU MAY talk with me or hell even trash on forsaken a couple times but if thats all your gonna do infront of me all the time then just dont talk to me whatsoever - I hate forsaken for its bad stuff too trust me but I still like the lore characters etc so its a bit awkward and annoying . UNLESS OOMFS / WITH PERMISSION  
 
+‧₊˚🖇️✩ ₊˚🎧⊹♡ ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ 🃜🃚🃖🃁🂭🂺 !!!
+
 I really dont care about you think of certain things - If one of those things are in my friends or if my friends are that certain thing Do not be Rude to my oomfs NOR me if your rude to me im simply most likely going to block you or ignore you if your rude to my oomfs then the same thing but i will lash out at you 
 
 Once more If i sound rude at times I most likely dont often mean it and if i do its because im upset PEOPLE have emotions . Im not always going to be whimsy and joyous and sometimes i dont even realize how i sound i apologize . 
 
-Do not Hate on my Yumeship and or Favorite characters its uncomfortable as hell And even if you Do at ALL keep it normal and dont go too far [No expections to this part]. Only 1 expection YK WHO YOU AREE DEAR COSMO LOVER . <3
+Do not Hate on my Yumeship and or Favorite characters its uncomfortable as hell And even if you Do at ALL keep it normal and dont go too far [No expections to this part]. Only 1 expection YK WHO YOU AREE DEAR COSMO LOVER . <3 
+
+૮₍´˶• . • ⑅ ₎ა !! bnuy . me!!
 
 Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC . w / other yumeshippers + Other 1x1 yumeshippers MAY c+h w me if im 1x1 or any character but maybe just iwvec or dont mention the yumeshipping part, then idm!.  . 
 
-I am now a bit uncomf with other 1x1 kins and if you claim to be his 1# fan . i prefer if you dni / iwvec unless i knew you before . and or feel comf with you .  No excuses on calling yourself his 1# fan i WILL hide you perm ./ for 24h , IM ALSO a aubree Fiction kin + Aubree irl dbles can either . iwec or..dni :( soz! selective sharing fictionkin with aubree tho as long as i think your cool and your fine ok? . ok.!!
+I am now a bit uncomf with other 1x1 kins and if you claim to be his 1# fan . i prefer if you dni / iwvec unless i knew you before . and or feel comf with you .  No excuses on calling yourself his 1# fan i WILL hide you perm ./ for 24h , IM ALSO a aubree Fiction kin + Aubree irl dbles can either . iwec or..dni :( soz! selective sharing fictionkin with aubree tho as long as i think your cool and your fine ok? . ok.!! ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა !! 
 
-Also Yes i am a minor but im extremely  desensitized to most things so you can absolutely have serious conversations around me or with me and i wouldnt mind hell i even like those conversations ...  **BUT** Do not be weird. and mind yourself to not say anything weird towards me [if your older then me aka above 17 or mostly 18+] Your a weirdo if you do so . 
+Also Yes i am a minor but im extremely  desensitized to most things so you can absolutely have serious conversations around me or with me and i wouldnt mind hell i even like those conversations ...  **BUT** Do not be weird. and mind yourself to not say anything weird towards me [if your older then me aka above 17 or mostly 18+] Your a weirdo if you do so .  (˶˃ᆺ˂˶) Do not ask me for my age if i dont know you or personal information . please. thanks.
 
-i cant believe im saying this but please do not get romantic feelings for me no matter how close you are to my age. i say this because countless friendships of mine had ended up by my friend confessing and its really upseting since im just not looking for that. DO. NOT. ASK. ME. OUT. FLIRTING IN JOKES IS OKAY! DO NOT BE SERIOUS.
+i cant believe im saying this but please do not get romantic feelings for me no matter how close you are to my age. i say this because countless friendships of mine had ended up by my friend confessing and its really upseting since im just not looking for that. DO. NOT. ASK. ME. OUT. FLIRTING IN JOKES IS OKAY! DO NOT BE SERIOUS. ₍⑅ᐢ..ᐢ₎
 
-
+𝐵𝑜𝑟𝑛 𝑡𝑜 𝑑𝑖𝑒.
 ⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱⊷⋇⋇⊶⊰❣⊱⊷⋇ ⋇⊶⊰❣⊱
 <img width="687" height="417" alt="image" src="https://github.com/user-attachments/assets/4ef796ab-56cd-4186-9425-d372c71a45c6" />
 
