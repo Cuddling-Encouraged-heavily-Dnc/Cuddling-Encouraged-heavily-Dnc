@@ -157,5 +157,7 @@ Cat - Shellvision CEO !! 💚💛
 
 Jay - @putmetorestimnotyourstosave - Most sane iron lung fan ever <3 
 
+Fizz / Fizzyp0p - He bring da doom !1!1
+
 
 
