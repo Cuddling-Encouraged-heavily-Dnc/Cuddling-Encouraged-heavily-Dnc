@@ -10,6 +10,13 @@ GITHUB is strictly for pt - Some of this is BYI information or INT/DNI'S but mos
 
 Trigger warning: yapping ./Hvj Joke ok 
 
+Sorry but let me just say something . **DO NOT COPY MY FUCKING SKINS.** IM SO SORRY BUT RECENTLY I KEEP SEEING PEOPLE WHO HEAVILY INSPO . if you see a eunoia like mine please just simply block them, i warned them not to copy and they said okay and sorry but after they changed JUST THE HAIR they waited and then changed it back . they didnt listen and continued to keep there heavily inspired pony of my eunoia . and one of my old john doe skin who someone else copied . 
+
+PLEASE ASK ME ATLEAST FOR INSPO . IT MAKES ME SO UNCOMFORTABLE, YOU WILL BE BLOCKED. I SPEND TIME ON MAKING SKINS, INSPO WITH PERMS IS OKAY. WITHOUT IS NEVER OKAY FOR ME . <img width="761" height="190" alt="image" src="https://github.com/user-attachments/assets/48e4860f-28c9-400e-93d4-10cb61050bd2" /> 
+
+(DO NOT FUCKING HARASS THEM, THIS IS SIMPLY TO SPREAD AWARENESS SLIGHTLY INCASE U DONT WANT TO DEAL WITH SOMEONE WHO TAKES HEAVY HEAVY INSPO . U MAY BLOCK THEM . do not be mean . do not whisper them . do not bother them . they were kind but just didnt listen . THANK YOU.)
+
+
 
  ──★ ˙ ̟ !! "MY NAME IS BRUTUS AND MY NAME MEANS HEAVY ! SO WITH A HEAVY HEART ILL GUIDE THIS DAGGER THROUGH THE HEART OF MY ENEMY ! MY WHOLE LIFE YOU WERE A FRIEND AND TEACHER TO ME , PLEASE KNOW MY ACTIONS ARE NOT ONLY MOTIVATED BY ENVY ! I TOO HAVE A DESTINY  THIS DEATH WILL BE ART! " /LYR !!  ──★ ˙ ̟ !!
 
