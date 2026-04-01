@@ -1,7 +1,3 @@
-Im THE Ceo of Bittersweet / cocoa x bassie~ .  Doubles are completely okay XDD !!
-
-<img width="661" height="418" alt="image" src="https://github.com/user-attachments/assets/90dd06fe-21c5-4206-b3b8-e5d973b54689" />
-
 # ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆
   Go sign my atabook ^_^ !!!!
 
