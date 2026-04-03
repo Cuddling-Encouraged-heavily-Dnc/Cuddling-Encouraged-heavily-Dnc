@@ -49,8 +49,8 @@ Read other readmes for other information + might update randomly extremely rando
 # Ponytown Info. 
 Im a heavy lover of cuddles please please do come and cuddle with me i love it sm heavy touch comf! [Even if c+h isnt in my name] . 
 
-You may take SLIGHT. SMALL. inspo of my ponys id prefer you dont but still but Do not copy my ponies i repeat DO NOT copy my ponies whatsoever I spend time on making them and you can too.
-Im usually with friends but dont be afraid to come up if you need something or cuddle. 
+Id prefer if you ONLY take inspo off of ponys with permission, No dont copy me please, okay. 
+Im usually with friends but dont be afraid to come up if you need something
 
 im basically ALWAYS at bakery rarely at docks . Only time im somewhere else is when im with a friend. 
 
