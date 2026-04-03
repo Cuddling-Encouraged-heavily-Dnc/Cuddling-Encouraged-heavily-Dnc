@@ -17,12 +17,12 @@ GITHUB is strictly for pt - Some of this is BYI information or INT/DNI'S but mos
 
 Trigger warning: yapping ./Hvj Joke ok 
 
-Sorry but let me just say something . **DO NOT COPY MY FUCKING SKINS.** IM SO SORRY BUT RECENTLY I KEEP SEEING PEOPLE WHO HEAVILY INSPO . if you see a eunoia like mine please just simply block them, i warned them not to copy and they said okay and sorry but after they changed JUST THE HAIR they waited and then changed it back . they didnt listen and continued to keep there heavily inspired pony of my eunoia . and one of my old john doe skin who someone else copied . 
+*Sorry but let me just say something . **DO NOT COPY MY FUCKING SKINS.** IM SO SORRY BUT RECENTLY I KEEP SEEING PEOPLE WHO HEAVILY INSPO . if you see a eunoia like mine please just simply block them, i warned them not to copy and they said okay and sorry but after they changed JUST THE HAIR they waited and then changed it back . they didnt listen and continued to keep there heavily inspired pony of my eunoia . and one of my old john doe skin who someone else copied*
 
 PLEASE ASK ME ATLEAST FOR INSPO . IT MAKES ME SO UNCOMFORTABLE, YOU WILL BE BLOCKED. I SPEND TIME ON MAKING SKINS, INSPO WITH PERMS IS OKAY. WITHOUT IS NEVER OKAY FOR ME . <img width="761" height="190" alt="image" src="https://github.com/user-attachments/assets/48e4860f-28c9-400e-93d4-10cb61050bd2" /> 
 <img width="228" height="229" alt="image" src="https://github.com/user-attachments/assets/e4a9f140-be79-4260-b3b2-403c67ec74ac" />
 
-(DO NOT FUCKING HARASS THEM, THIS IS SIMPLY TO SPREAD AWARENESS SLIGHTLY INCASE U DONT WANT TO DEAL WITH SOMEONE WHO TAKES HEAVY HEAVY INSPO . U MAY BLOCK THEM . do not be mean . do not whisper them . do not bother them . they were kind (eunoia only the other jst went offline so i blocked) but just didnt listen . THANK YOU.)
+*(**DO NOT** FUCKING HARASS THEM, THIS IS SIMPLY TO SPREAD AWARENESS SLIGHTLY INCASE U DONT WANT TO DEAL WITH SOMEONE WHO TAKES HEAVY HEAVY INSPO . U MAY BLOCK THEM . do not be mean . do not whisper them . do not bother them . they were kind (eunoia only the other jst went offline so i blocked) but just didnt listen . THANK YOU.)*
 
 
 
@@ -56,9 +56,9 @@ im basically ALWAYS at bakery rarely at docks . Only time im somewhere else is w
 
 Please do not cover me its a bit annoying unless your cuddling then idm. 
 
-I dont have crowd discomfort nessacerily but if we are talking and im in a bit of a crowd and being covered i will find it a bit uncomfort at times since i hate being covered, I can get overwhelmed sometimes from too many people Please be patient. 
+I can often get overwhelmed huge crowds of people talking and would like to move, Its not because of you, dont be afraid to follow anyway.
 
-I can get rather clingy if i really like you and for that im sorry.
+I can get rather clingy maybe possessive if i really like you and for that im sorry, im trying to stop okay, . . 
 
 <img width="137" height="142" alt="image" src="https://github.com/user-attachments/assets/8a1608e9-8b12-412c-800b-538c0bf09fa1" />
    ~ .   if you wanna cud as certain characters
@@ -75,7 +75,9 @@ I LOVE matching characters ( even if enemies or etc lore wise) plspls match skin
 
 I block FREELY sorry if you were blocked especially if you ship adminvirus/1xdoe/doublezipper [Unless you were one of the proshippers/Darkshippers i blocked then Fuck off <3 .]
 
-You may Int freely most of the time as i am very often bored and looking for conversations to engage in -  unless i have 'NV' in my name . i will not respond to you or perhaps just want to be left alone at that moment thank you. If you want just whisper me and ill respond later on. Once again, Be PATIENT with me im extremely unstable at times and sensitive the smallest of things can make me upset sometimes and ill keep overthinking it. 
+im most of the time very open to chatting and or interacting as characters (preferably not FULL ON ROLEPLAYS) and would love if you interacted, but please be aware im extremely sensitive and would prefer if you iwec (INTERACT WITH EXTREME CAUTION) or i will get upset and or take things to heart.✩°｡⋆💔💢 Sometimes even if not stated in my name im offtab and doing something, so id HEAVILY prefer if you W2I (whisper to interact) at all times. 
+
+Sometimes if i have SV/NV in my name im most likely burn out mentally and or tired and would prefer to be left alone, unless your a close friend of mine and or if i interact with you first and try to engage in conversation. Please be understanding at that moment and leave me alone, Cuddling is okay yeah but still. dont try to talk to me, unless its 1 SMALL QUESTION. Then okay. Whatever.
 
 
 ⊹ ࣪ ˖💢 ꫂ ၴႅၴ ₊ ⊹"Throw me to the wolves, Punish me for your sins BURDEN me with your guilt so it will eat me instead."✩°｡⋆⸜ 🎧✮
@@ -90,13 +92,13 @@ Yes i am aware of the drama surronding forsaken and i do NOT support forsaken wh
 
 Do not be rude to my oomfs (Aka friends) just because there gay/non binary/trans/a system/ I. DONT. CARE. what you think if your rude to them im either going to LASH out and or block you and tell them to block you aswell <3 . Fuck off disrespectfully .
 
-Once more If i sound rude at times I most likely dont often mean it and if i do its because im upset PEOPLE have emotions . Im not always going to be whimsy and joyous and sometimes i dont even realize how i sound i apologize . 
+Apologies if i sound Mean or dry at times, Im just not in the mood and or dont know what to say, I have emotions too, i wont always be whimsy with you, And if that bothers you? Leave me alone at that time and or just dont even try to be my friend. 
 
 Dont go too far with joking about my comfort characters / yumeships please, Especially if you arent Gabe/Trigger or just a close friend of mine in general !.
 
 ૮₍´˶• . • ⑅ ₎ა !! bnuy . me!!
 
-Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC . w / other yumeshippers + Other 1x1 yumeshippers MAY c+h w me if im 1x1 or any character but maybe just iwvec or dont mention the yumeshipping part, then idm!.  . 
+Im a Hvy Non sharing 1x Yumeshipper Doubles dni or IWVEC , Cuddle or whatever okay but theres still a high  chance you will be (Later on) blocked. Sorry.
 
 I am now a bit uncomf with other 1x1 kins and if you claim to be his 1# fan . i prefer if you dni / iwvec unless i knew you before . and or feel comf with you .  No excuses on calling yourself his 1# fan i WILL hide you perm ./ for 24h , IM ALSO a aubree Fiction kin + Aubree irl dbles can either . iwec or..dni :( soz! selective sharing fictionkin with aubree tho as long as i think your cool and your fine ok? . ok.!! ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა !!
 
@@ -201,4 +203,7 @@ Jay - @putmetorestimnotyourstosave - Most sane iron lung fan ever <3
 Fizz / Fizzyp0p - He bring da doom !1!1
 
 
+<img width="372" height="282" alt="image" src="https://github.com/user-attachments/assets/879296e6-8669-4342-8a15-6b3576856ffb" /> 
+
+**"Bro jx1dx1 SUCKKSSSS :// omgah bruh X["**
 
