@@ -1,8 +1,8 @@
-⋅☆⋅⋆DRAWING BY ME⋅☆⋅⋆ ^^ ... *Its lowkey a shitty doodle but im lazy boohoo bro*
+⋅☆⋅⋆THIS FOLLOWING DRAWING IS BY ME⋅☆⋅⋆ ^^ ... *Its lowkey a shitty doodle but im lazy boohoo bro*
 
 
 # ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆
-
+*Other drawings are NOT. MINE. and found on pinterest / google . UNLESS STATED OTHERWISE.*
 
             "Do you remember.?
 <img width="369" height="430" alt="image" src="https://github.com/user-attachments/assets/a9b92beb-630c-49b4-893e-0aa4360959ee" /> <3   
