@@ -1,4 +1,13 @@
+!!!DRAWING BY ME!!! ^^ ... Its lowkey a shitty doodle but im lazy boohoo bro
+
+vvvvvvvvvvvvvvvvvvvvvvv 
+
+
+<img width="369" height="430" alt="image" src="https://github.com/user-attachments/assets/a9b92beb-630c-49b4-893e-0aa4360959ee" />
+
+
 # ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆
+Im aubree irl <333 
   Go sign my atabook ^_^ !!!!
 
 # .. Well hello!! . Im ayumi !. 
