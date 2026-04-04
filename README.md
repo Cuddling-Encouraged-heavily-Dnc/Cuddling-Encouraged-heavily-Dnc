@@ -160,8 +160,6 @@ Miloll - THE #1 DOGDAY FAN for this fanart on pinterest im so sorry if this is t
 (basically the end of the github  . go read the other "read me's" if u want other info ig idfk. or just leave..okay now leave- OKAY GO.)
 My oomfs who i love sm + people you should go check out AND NOWWWW THERE SO COOL ILYSM OOMFS :D <3 
 
-@gnarpyorcube
-@d0llym3nhera
 
 Zed - 1# Hacklord n Erlking fan 
 
