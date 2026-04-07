@@ -121,23 +121,17 @@ i cant believe im saying this but please do not get romantic feelings for me no 
 
 Doublefedora [Iwvec] [🔗]
 
-77noli Iwc [🎀]
-
 Pizzaburger [Iwec] [🎀]
 
 Paycheck [Iwc] [Just dont ship it]
 
 Admin virus [💥] 
 
-1xDoe [💥] / [Iwvec] 
+1xDoe [💥] 
 
-Any 1x1 Ship in general - [💥] / [Iwvec]
-
-c00lkid x 007n7 [4saken] [💥] [DNI you are disgusting .]
+Any 1x1 Ship in general - [💥]
 
 Any Child x Adult / Child x Parent Ship [💥]
-
-Jx1dx1 x Aubree [🔗/💥/🎀] [Dni/IWVEC I Have mixed feelings sorry for adding all three]
 
 Strawberrycookie [💥] [Dni unless crowning or need help w/smth.] [Sorry But due to bad expriences i feel uncomfortable . Only expection is friends i already know who ship it.]
 
