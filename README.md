@@ -1,4 +1,4 @@
-⋅☆⋅⋆THIS FOLLOWING DRAWING IS BY ME⋅☆⋅⋆ ^^ ... *Its lowkey a shitty doodle but im lazy boohoo bro*
+⋅☆⋅⋆Ts drawing is by me :)  ... *Its lowkey a shitty doodle but im lazy boohoo bro*
 
 
 # ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆
@@ -15,6 +15,9 @@ Im aubree irl <333
 
 # .. Well hello!! . Im ayumi !. 
 GITHUB is strictly for pt - Some of this is BYI information or INT/DNI'S but most of this is Me just going on about myself because its fun ! .. so uh yeah Anyways im aubree hi i love bnuys  . Sorry but i do not follow back if i ever do i think ur super cool and or your my oomfie ..
+
+!! --> please check out jay or @putmetorestimnotyourstosave Github if your looking to resell a seb plush (Read her git for info n stuff okay?... or her other githubs.)
+
 
 Trigger warning: yapping ./Hvj Joke ok 
 
@@ -190,5 +193,5 @@ Fizz / Fizzyp0p - He bring da doom !1!1
 
 <img width="372" height="282" alt="image" src="https://github.com/user-attachments/assets/879296e6-8669-4342-8a15-6b3576856ffb" /> 
 
-**"Bro jx1dx1 SUCKKSSSS :// omgah bruh X["**
+**"Jx1dx1 sucks bruv !! "** /j
 
