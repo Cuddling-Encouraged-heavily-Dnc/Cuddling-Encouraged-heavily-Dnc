@@ -168,13 +168,13 @@ Vitix -  = #1 פרחים fan!!!! @Vitix-WeirdFrutiger-collective
 
 Gabe - Wooly's OFFICAL husband🐑 + Cosmo lover🍰
 
-Mellow - Cats are LIFE!1!
+Mellow - Cats are LIFE!1! - WIFE. 
 
-Azure/Zap - Youtube Addict 
+Azure/Zap - Youtube Addict !!
 
 Chii chii - "Goo goo ga ga 👶 "  @Chii1-chips 
 
-Blueberry/Azure - Azure Lover + #1 azure fan
+Blueberry - Fry unorderer and paint can exploder
 
 Finn/Will - Buildershed Fan heh
 
