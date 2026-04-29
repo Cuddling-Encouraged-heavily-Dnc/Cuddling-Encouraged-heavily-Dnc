@@ -16,7 +16,6 @@ Im aubree irl <333
 # .. Well hello!! . Im ayumi !. 
 GITHUB is strictly for pt - Some of this is BYI information or INT/DNI'S but most of this is Me just going on about myself because its fun ! .. so uh yeah Anyways im aubree hi i love bnuys  . Sorry but i do not follow back if i ever do i think ur super cool and or your my oomfie ..
 
-!! --> please check out jay or @putmetorestimnotyourstosave Github if your looking to resell a seb plush (Read her git for info n stuff okay?... or her other githubs.)
 
 
 Trigger warning: yapping ./Hvj Joke ok 
