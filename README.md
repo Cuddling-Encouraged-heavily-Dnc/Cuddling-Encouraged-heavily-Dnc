@@ -1,5 +1,7 @@
 ⋅☆⋅⋆Ts drawing is by me :)  ... *Its lowkey a shitty doodle but im lazy boohoo bro*
 
+((Github might change alot soon.))
+
 
 # ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆
 *Other drawings are NOT. MINE. and found on pinterest / google . UNLESS STATED OTHERWISE.*
