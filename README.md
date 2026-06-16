@@ -1,4 +1,5 @@
-Remaking soon , Check strawpage for more information in the meanwhile. 
+${\color{#8b0000}\text{  ྀི︶˚̣̣̣💢◞།| ͜ |།ིྀ ͝  ' Feel my hatred . '⤷ ゛⚔️ˎˊ˗  }}$
+
 
 
 # This is.. MASS INFECTION!! 
